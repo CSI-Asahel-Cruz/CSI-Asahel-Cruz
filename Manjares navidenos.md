@@ -15,8 +15,13 @@
 ***3 rajas*** de canela
 '**Azúcar a gusto**'
 ***1 cucharadita*** de vainilla
+
+### Video de la receta
+- https://www.youtube.com/watch?v=gE2kl-pPF-I
+
 #### Referencia
 https://edgardonoel.com/majarete/
+
 ### Procedimiento
 1. En una olla, a temperatura mediana, agrega todos los ingredientes excepto la harina de arroz. Mezcla y cocina hasta que comience a hervir.
 2. Una vez hierva, añade la harina de arroz mezclando poco a poco, hasta que se incorpore y vaya espesando.
